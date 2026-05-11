@@ -1,4 +1,4 @@
-#  
+#  secure anime card collection Script is the best anime card collection Script, featuring god mode and custom skins. Safe and powerful for all your
 
 
 
